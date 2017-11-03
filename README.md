@@ -1,4 +1,4 @@
 # hi-all
 Uh hello!
 
-NO EXP WITH GITHUB JUST YET BTW!
+Think I'm starting to get used to GitHub. :P
